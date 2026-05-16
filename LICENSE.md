@@ -1,4 +1,4 @@
-# 
+# premium nft trading bot | metadata-parsing + collection-scanning offers the most advanced nft trading bot, with metadata-parsing and collection-scanning. Ideal for professional
 
 
 
